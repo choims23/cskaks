@@ -1,2 +1,3 @@
 my hobby is...
 sleeping
+음악 감상
